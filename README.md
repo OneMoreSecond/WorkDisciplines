@@ -1,2 +1,2 @@
 # WorkDisciplines
-Order of law as condensed condensed working experience
+Order of law as condensed working experience
